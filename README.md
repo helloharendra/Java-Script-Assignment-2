@@ -19,3 +19,4 @@
 
 ![9 1](https://user-images.githubusercontent.com/78723011/204158420-94498e0f-29d8-4336-9527-0e50fb3fa048.png)
 ![9 2](https://user-images.githubusercontent.com/78723011/204158422-29429406-9c1f-4756-b924-949740e35e99.png)
+![10 1](https://user-images.githubusercontent.com/78723011/204158423-1733c070-380d-48d5-99f8-adff9acada77.png)
